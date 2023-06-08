@@ -1,4 +1,4 @@
-💫 About Me:
+💫 About Me:<br>
 just an average guy
 
 🌐 Socials:<br>
